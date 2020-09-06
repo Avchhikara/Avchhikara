@@ -5,7 +5,7 @@ Usually when I am not doing the geeky stuff, I love to watch movies and series r
 
 #### Get in touch ?
 
-[LinkedIn]([https://www.linkedin.com/in/avnishchhikara]. "https://www.linkedin.com/in/avnishchhikara")
-[Twitter](<[https://twitter.com/avnish_chhikara](https://twitter.com/avnish_chhikara)>)
+[LinkedIn](https://www.linkedin.com/in/avnishchhikara)
+[Twitter](https://twitter.com/avnish_chhikara)
 
 **## views are my own ##**
